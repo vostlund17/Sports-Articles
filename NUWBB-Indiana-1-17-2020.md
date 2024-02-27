@@ -1,3 +1,11 @@
+# ‘CATS TOPPLE HOOSIERS, ESTABLISH THEMSELVES AS BIG TEN THREAT
+
+#### Link: https://wnursports.com/2020/01/17/cats-topple-hoosiers-establish-themselves-as-big-ten-threat/
+
+#### Posted on January 17, 2020
+
+#### By Viktor Ostlund
+
 On Thursday evening, the Northwestern Wildcats defeated the #15 ranked Indiana Hoosiers 71-69 in an overtime thriller.
 
 Despite a solid home win against Purdue the Sunday prior, Joe McKeown’s 14-2 squad still hadn’t secured a top 25 ranking this season as they traveled to Bloomington to face off against an experienced Hoosier side that had been ranked inside the AP top 15 for seven consecutive weeks.
