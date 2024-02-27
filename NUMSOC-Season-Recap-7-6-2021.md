@@ -1,6 +1,6 @@
 # Season Recap: Men's Soccer
 #### Link: https://wnursports.com/2021/07/06/northwestern-mens-soccer-season-recap-2021/
-#### Date: July 6, 2021
+#### Posted on July 6, 2021
 #### By Viktor Ostlund
 ## In Tim Lenahan’s final season as head coach, Northwestern started strong but struggled down the stretch.
 #### Season Statistics
